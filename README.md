@@ -2,9 +2,6 @@
 
 
 
-[https://i.ibb.co/R0bcb6k/Screenshot-2.png](https://i.ibb.co/R0bcb6k/Screenshot-2.png)
-[flash_usdt_image.png](https://i.ibb.co/R0bcb6k/Screenshot-2.png)
-
 
 
 Flash USDT is available for immediate use with any wallet, including Binance. If you're seeking a way to execute fast transactions on blockchain networks,I offer an innovative solution that allows Flash USDT to reside in any wallet for up to 10 days. 
