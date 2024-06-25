@@ -2,8 +2,8 @@
 
 
 
-[![Flash USDT Image]([flash_usdt_image.png](https://i.ibb.co/R0bcb6k/Screenshot-2.png)
-[![Flash USDT Image]([flash_usdt_image.png](https://i.ibb.co/R0bcb6k/Screenshot-2.png)
+[https://i.ibb.co/R0bcb6k/Screenshot-2.png](https://i.ibb.co/R0bcb6k/Screenshot-2.png)
+[flash_usdt_image.png](https://i.ibb.co/R0bcb6k/Screenshot-2.png)
 
 
 
